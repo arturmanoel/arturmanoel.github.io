@@ -1,1 +1,0 @@
-# arturmanoel.github.io
